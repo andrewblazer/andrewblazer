@@ -1,7 +1,7 @@
 ## Who I Am? Or is it Who Am I? idk
 I'm Andrew, living in 🇸🇬 Atleast soon or never. I’m totally not a browny.
 ## Things normally i do
-- backend, frontend, flutter stuff
+- backend stuff ig? idk not interested yet rn
 - EDM stuff or normally Music
 - Android stuff
 - Widely tech stuff?
